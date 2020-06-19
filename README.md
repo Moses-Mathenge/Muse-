@@ -1,1 +1,2 @@
-# Muse-
+#[ Muse™]
++ Home #>Schools> shop
